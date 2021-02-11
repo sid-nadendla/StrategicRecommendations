@@ -1,1 +1,1 @@
-# StrategicCrowdsourcing
+# Strategic Recommendations
